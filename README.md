@@ -1,3 +1,3 @@
 ### Profile
 
- I'm a developer since 2000, currently working for c2is.
+ Currently working for c2is as IT manager, I develop web applications since 2000.
